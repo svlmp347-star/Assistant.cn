@@ -1,0 +1,2 @@
+# Assistant.cn
+Good
